@@ -5,3 +5,6 @@
 **Discord Server:** https://discord.gg/DGCNWGqCDP
 <br>
 **TikTok:** https://tiktok.com/@fractureogfn
+<br>
+<br>
+###### **Fracture** is not affiliated with Epic Games.
