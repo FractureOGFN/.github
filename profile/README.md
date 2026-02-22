@@ -6,5 +6,4 @@
 <br>
 **TikTok:** https://tiktok.com/@fractureogfn
 <br>
-<br>
 ###### **Fracture** is not affiliated with Epic Games.
